@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+ - 👀 Currently learning and working on NLP
+ - 🎓 Bsc Physics at U Maryland 🗽, Res Physics in Imperial College London 🎡
+ - 🧐 Ask me anything and I am willing to learn things from ppl.
+ - ⚡️ Secrete research on Fusion energy
