@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
- - 👀 Currently learning and working on NLP
+ - 👀 Currently learning and working on self-actualization
  - 🎓 Bsc Physics at U Maryland 🗽, Res Physics in Imperial College London 🎡
  - 🧐 Ask me anything and I am willing to learn things from ppl.
  - ⚡️ Secrete research on Fusion energy
